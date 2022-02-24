@@ -1,1 +1,1 @@
-Team Projetos Quinta Série - Produtos Externos
+Team Quinta Série - Produtos Externos
